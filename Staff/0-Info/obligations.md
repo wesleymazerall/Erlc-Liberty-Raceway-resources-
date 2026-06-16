@@ -1,0 +1,1 @@
+All staff are oblagated to folow the rules check `INDEX.md` to find them
